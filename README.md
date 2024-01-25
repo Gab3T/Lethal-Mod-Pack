@@ -1,2 +1,2 @@
 # Lethal-Mod-Pack
-Just a mod pack for me and my friends to play
+Screw nick for making do all this for him
